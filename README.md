@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Recs1088 
-- and i fell like i am starting again, so lets do this!
+- and i fell like i am starting my profesional live again, so lets do this!
 - 👀 I’m interested in tech, product development and data science. 
 - I like building stuff and i am normally amaze by any development 
 - that help or impact in changing the world.
